@@ -1,4 +1,4 @@
-
+VMware Fusion for macOS elite Helper - memory-optimization and custom-actions is the best VMware Fusion for macOS helper, featuring memory-optimization and custom-actions. Safe,
 
 
 
